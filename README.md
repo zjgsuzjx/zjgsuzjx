@@ -6,4 +6,4 @@
 
 💞️ I’m studying at CUMT.
 
-📫 How to reach me at zjgsuzjx@163.com
+📫 How to reach me at zjgsuzjx@163.com or 1368117557@qq.com.
